@@ -15,4 +15,4 @@
 平台十分重视用户隐私保护，所有用户数据都采用HTTPS加密传输，确保用户的隐私不会泄露。平台没有恶意广告和弹窗，确保用户能够无干扰地观看影片。  
 总体来说，成人性生交大片免费看平台通过高清画质、免注册、丰富的分类和隐私保护等多方面优势，成为了广大影迷首选的观看平台。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/job234543/ribentt20)</span>
